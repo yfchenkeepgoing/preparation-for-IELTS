@@ -1,0 +1,4 @@
+# Preparation for ILETS
+## methods and resources
+### note:  These resources are for learning and communication only, and are strictly prohibited for commercial use, please contact with me to delete them if they infringe the copyright 
+I have just finished my IELTS exam in the late August. I have achieved 7.5 overall, and my reading, listening, speaking and writing is 9.0, 8.5, 6.0 and 6.5 respectively. I have some experiences and good electronic books to share with you. All of them could be downloaded in this repository in PDF version. The experience is now written in Chinese but I will translate it into English if I am available in the future. Feel free to take whatever you want, hopefully you will achieve better scores than me.
